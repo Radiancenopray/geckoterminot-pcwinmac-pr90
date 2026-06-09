@@ -1,4 +1,4 @@
-# 
+# Ultime geckoterminal sniper bot préréglages pour Mac OS | Premium geckoterminal sniper bot préréglages pour PC Windows. Avec tests de simulation et optimisation du prix du gaz — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
